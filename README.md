@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I'm 23 years old working in Red Teaming in Russia Petersburg<br>⚡ Freetime I do malware development<br>✅ Been doing Cybersecurity for 15 years<br>🤝 My mom and dad both work in cybersecurity aswell :)
+🔭 I'm 23 years old working in Red Teaming in Russia Petersburg<br>⚡ Freetime I do malware development<br>✅ Been doing Cybersecurity for 15 years<br>🤝 My mom and dad both work in cybersecurity aswell :)<br>❤️ Theistic Satanist ;3
 
 
 ## 🌐 Socials:
